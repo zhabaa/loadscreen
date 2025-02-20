@@ -1,2 +1,2 @@
-# хз что это но мне нравится 
-![изображение](https://github.com/user-attachments/assets/0d82bc78-e429-40ee-b2a6-d26168bc8be1)
+# Прикольный фон
+![lines](https://github.com/user-attachments/assets/628df989-0ef1-4f38-8fe6-fc4360b80dcb)
